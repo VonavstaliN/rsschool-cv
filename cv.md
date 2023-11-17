@@ -4,7 +4,7 @@
 
 * __Location:__ Podgorica, Montenegro
 
-* __Phone:__ + 382 68 512 411
+* __Phone:__ + 382 68 512 411, +7 910 752 63 94
 
 * __Email:__ vonavistalin2009@mail.ru
 
